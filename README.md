@@ -1,0 +1,4 @@
+- 👋 heyo, im zyth! (@zythme)
+- 👀 i like programming java, luau (roblox), and web development. i also play games like minecraft, fortnite, valorant, hearts of iron, roblox, and more
+- 🌱 right now i'm not really trying to learn much, except maybe java
+- 📫 you can email me (goldnight621@gmail.com) or contact me on twitter/discord, @zythalopagus on discord and @thgindlog on twitter
